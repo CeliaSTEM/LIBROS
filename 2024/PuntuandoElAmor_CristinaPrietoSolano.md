@@ -9,7 +9,7 @@
 ### NOTA: ⭐⭐⭐
 
 
-# SINOPTIS: 
+# SINOPSIS
 
 **Lucas Pérez** 
 **Edad:** 25  
