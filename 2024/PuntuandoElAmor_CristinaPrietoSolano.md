@@ -9,7 +9,7 @@
 ### NOTA: ⭐⭐⭐
 
 
-### SINOPTIS: 
+# SINOPTIS: 
 
 **Lucas Pérez** 
 **Edad:** 25  
@@ -27,7 +27,7 @@
 Cuando Lucas se encuentra en su buzón una nota de su ligue de una noche, Nuria, puntuando su polvo del sábado, no se lo puede creer. Más que nada porque ninguna tía jamás le ha puesto ninguna pega. Pero es que cuando su compañera de piso, Lorena, le descubre que detrás de esa nota hay un código QR que lleva a un puñetero blog que se llama "De tío en tío... y me lo tiro porque me toca", la situación llega a límites absurdos.  
 Lucas normalmente es un tío despreocupado y seguro de sí mismo, y ahora tiene el ego herido. Las palabras de Nuria se quedan en su mente como un abejorro molesto, aunque se dice a sí mismo que al menos no tiene por qué volver a verla nunca más... Pero el destino tiene otros planes para ellos: Nuria resulta ser la camarera del bar más cercano a su nuevo trabajo, y se va a apañar para sacarle de sus casillas a diario. Por si fuera poca tortura verla cada mañana, por culpa de Lorena también se va a ver obligado a trabajar con ella por las tardes, en temas... algo candentes. Es inevitable que, cuando se junten, salten chispas, pero ¿es mejor evitar arder o dejarse consumir por las llamas?
 
-### RESEÑA
+# RESEÑA
 
 Fan de la literatura romántica NO SOY, pero me he visto en la obligación autoimpuesta de leer a @NanaLiteraria y ella solo escribe romántica. «__»
 
@@ -58,6 +58,6 @@ Porque todos nos merecemos que nos respeten. «__»
 
 ---
 
-### ANOTACIONES
+# ANOTACIONES
 
 ...
