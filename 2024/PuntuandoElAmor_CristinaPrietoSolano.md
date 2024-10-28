@@ -37,7 +37,7 @@ Fan de la literatura romántica NO SOY, pero me he visto en la obligación autoi
 ---
 
 Os pongo en contexto: Lucas es un chico que recibe una reseña (no demasiado positiva, unas míseras ⭐⭐⭐/5) del ultimo polvo de una noche que tuvo con una chica llamada Nuria.  
-Esta chica, además, escribe una reseña completa sobre la experiencia en la que suelta comentarios que hieren el orgullo de Lucas, entre ellos: "Tiene el foco centrado en su polla. No repetiría. No se lo recomendaría a mis amigas." «__»
+Esta chica, además, escribe una reseña completa sobre la experiencia en la que suelta comentarios que hieren el orgullo de Lucas: "Tiene el foco centrado en su polla. No repetiría. No se lo recomendaría a mis amigas." «__»
 
 --- 
 
@@ -55,12 +55,20 @@ Ahora, después de leerlo, tengo curiosidad sobre los porcentajes que se obtendr
 
 El libro gira en torno al egoismo y el egocentrismo, la falta de empatía, el individualismo... [Todo en clave de humor y contado por un chico hetero básico enfadado]
 
-Y cómo muchas veces estos comportamientos los realizamos sin darnos cuenta, haciéndole daño a personas que nos importan... O a personas que no nos importan realmente, pero a las que no por ello queremos hacerles daño. 
+Y de cómo muchas veces estos comportamientos los realizamos sin darnos cuenta, haciéndole daño a personas que nos importan... O a personas que no nos importan realmente, pero a las que no por ello queremos hacerles daño. 
 
 Porque todos nos merecemos que nos respeten. «__»
+
+--- 
+
+Obviamente el libro habla de sexo constantemente, aunque sin ser demasiado explícito.
+
+También de distintos romances, ya que hay más personajes con conflictos romáticos de los que sabemos su historia a partir de lo que nos cuenta el protagonista.
+
+Pero sobre todo es un libro de PERSONAS, REALIDADES, EVOLUCIÓN y RESPETO. ¿Podríamos considerar que es un libro costumbrista? «__»
 
 ---
 
 # ANOTACIONES
 
-...
+¿Y si nadie me hubiera dicho que era un libro de romance? El título y la portada me está vendiendo un libro ligero de romance de manual. Y es un libro ligero y fácil de leer pero, ¿es de romance? ¿Qué necesitais para considerar que un libro es de romance? Porque conozco libros de romance que no terminan en final feliz, aunque mucha gente lo considere requisito indispensable. ¿Si lo hubiera escrito un tio sería un libro costumbrista?
